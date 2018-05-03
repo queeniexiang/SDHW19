@@ -1,4 +1,8 @@
 # SDHW19
+Team popsticle: Terry Guan Queenie Xiang
+SoftDev2 pd7
+K #19: Onions, Bell Peppers, and Celery, Oh My!   .
+Due R 2018-05-03, 8:00am, EST.
 
 K #19: Onions, Bell Peppers, and Celery, Oh My!   .
 
